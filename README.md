@@ -1,1 +1,1 @@
-# aviachipta-narxi-bashorati
+# Aviachipta narxini bashorat qilish
